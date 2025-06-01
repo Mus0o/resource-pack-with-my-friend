@@ -1,1 +1,2 @@
-# hi is my resource pack for my friend, do not instal pls pls pls plsplsplspsl;skdklfsdhijofdshjokfgvhioufsghjofsghioufshiogfsdhi
+# hi is my resource pack for my friend on a french server 
+# here the dicord :D : https://discord.gg/H23vD5ZEhx
